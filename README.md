@@ -1,1 +1,1 @@
-kode colongan
+Code by NajibJamilA/apaaja
